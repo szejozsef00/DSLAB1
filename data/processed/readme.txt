@@ -1,0 +1,1 @@
+Túl nagy méretű a feldolgozott fájl, ezért nem tudom feltölteni.
